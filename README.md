@@ -6,4 +6,4 @@
 
 - 💙 I think the web is the coolest thing ever. 
  
-- 📫 You can reach me at cody@codywilliams.dev
+- 📫 I'm looking for opportunities. You can reach me at cody@codywilliams.dev
