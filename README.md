@@ -8,4 +8,4 @@
  
 - 📫 I'm looking for opportunities. You can reach me at cody@codywilliams.dev
 
-- 🖥️ Check out my personal website at codywilliams.dev
+- 🖥️ Check out my personal website at https://codywilliams.dev
